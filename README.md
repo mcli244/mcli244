@@ -1,5 +1,5 @@
 <h1 align="center">
-  Hey, I'm Li xaingjun!👏
+  Hey, I'm Li xiangjun!👏
 </h1>
 
 **Preview**：A black-eyed coder who loves guitars🎸 and photography📸.
