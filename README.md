@@ -6,7 +6,7 @@
 
 **Blog**：https://blog.csdn.net/mc_li
 
-**Email**：lixiangjun.michael@foxmail.com
+**Email**：lxj.coreylee@foxmail.com
 
 **Bilibili**: 【小李sy的个人空间-哔哩哔哩】 https://b23.tv/yMO3ulh
 
